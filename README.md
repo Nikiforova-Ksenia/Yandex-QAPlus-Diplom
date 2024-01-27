@@ -1,0 +1,1 @@
+# Yandex-QAPlus-Diplom
